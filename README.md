@@ -1,1 +1,1 @@
-Youtube video: https://youtube.com/shorts/CYzLCGL48t0?feature=share
+Youtube video: https://youtube.com/shorts/GVXINwhmNcY?feature=share
